@@ -29,4 +29,4 @@ Russian (native) · English (B1) · Vietnamese (B1) · Japanese (B1)
 
 ## Contacts
 
-[LinkedIn](https://www.linkedin.com/in/semen-goltsman-923949214/) · bezzubik713@gmail.com
+[LinkedIn](https://www.linkedin.com/in/semen-goltsman) · bezzubik713@gmail.com
